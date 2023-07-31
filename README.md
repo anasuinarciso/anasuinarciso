@@ -1,7 +1,9 @@
 ### hai :3 
 ![image](https://github.com/anasuinarciso/anasuinarciso/assets/139638467/9cd54341-67e0-478b-89b9-a287fc51e369)![image](https://github.com/anasuinarciso/anasuinarciso/assets/139638467/2c045f03-24bc-450a-9df5-92a9017e4fad)![image](https://github.com/anasuinarciso/anasuinarciso/assets/139638467/f11dce47-caad-4c9c-b5d1-6b2ca061dbd8)![image](https://github.com/anasuinarciso/anasuinarciso/assets/139638467/6b4134d6-37d9-4075-8380-392c7bc00344)![image](https://github.com/anasuinarciso/anasuinarciso/assets/139638467/21cad70a-b9c8-438d-b3ce-094abbe049ef)
+![gif](https://github.com/anasuinarciso/anasuinarciso/assets/139638467/02b3e6e4-2899-4861-8b65-aaaf3e94a212)
 
-![](https://github.com/anasuinarciso/[Your_GIF_Name](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/5d1a8c88-6303-48a3-9218-9a1bbc9eaa32/d5082ta-6a8ea5e0-3c7b-4935-ac11-96737ec47a8a.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzVkMWE4Yzg4LTYzMDMtNDhhMy05MjE4LTlhMWJiYzllYWEzMlwvZDUwODJ0YS02YThlYTVlMC0zYzdiLTQ5MzUtYWMxMS05NjczN2VjNDdhOGEuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.I7W2Sw9i8b8lyEDhl3OMUm9nIyCY3DsDvfJPgzh4jaE)https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/5d1a8c88-6303-48a3-9218-9a1bbc9eaa32/d5082ta-6a8ea5e0-3c7b-4935-ac11-96737ec47a8a.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzVkMWE4Yzg4LTYzMDMtNDhhMy05MjE4LTlhMWJiYzllYWEzMlwvZDUwODJ0YS02YThlYTVlMC0zYzdiLTQ5MzUtYWMxMS05NjczN2VjNDdhOGEuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.I7W2Sw9i8b8lyEDhl3OMUm9nIyCY3DsDvfJPgzh4jaE.gif)
+
+
 
 
 
