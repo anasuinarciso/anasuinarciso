@@ -2,7 +2,7 @@
 - i'm daniel, he/him !! im usually on pg and rarely on 18+
 - err i sit with my friends a lot ^_^ feel free to c + h if im alone
 - i'm autistic + other unlisted disorders etc, keep that in mind.
-- please dni if you are -15 ty... 
+- please dni if you're just looking to start or pull me into drama
 
 ![image](https://github.com/anasuinarciso/anasuinarciso/assets/139638467/9cd54341-67e0-478b-89b9-a287fc51e369)![image](https://github.com/anasuinarciso/anasuinarciso/assets/139638467/2c045f03-24bc-450a-9df5-92a9017e4fad)![image](https://github.com/anasuinarciso/anasuinarciso/assets/139638467/21cad70a-b9c8-438d-b3ce-094abbe049ef)![image](https://github.com/anasuinarciso/anasuinarciso/assets/139638467/6c408f43-722a-4525-904e-39756ac824f7)![image](https://github.com/anasuinarciso/anasuinarciso/assets/139638467/35d0c96c-42fa-40cf-a288-dada5392afa7)
 ![image](https://github.com/anasuinarciso/anasuinarciso/assets/139638467/8ba48ae4-6ec4-4135-8d3e-a8f03415320f)![image](https://github.com/anasuinarciso/anasuinarciso/assets/139638467/866cbe45-bbac-473a-9475-70cc9e7f7afe)![image](https://github.com/anasuinarciso/anasuinarciso/assets/139638467/6da343a8-7e25-4bea-843d-27f328523fff)
