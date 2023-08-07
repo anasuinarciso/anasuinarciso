@@ -1,7 +1,7 @@
 - hi ponytown (if u dont feel like reading my rentry)
 - i'm daniel, he/him !! im usually on pg and rarely on 18+
 - err i sit with my friends a lot ^_^ feel free to c + h if im alone
-- i'm autistic + other unlisted disorders etc, keep that in mind.
+- i'm autistic + other unlisted disorders. (yes im prof. diagnosed stop asking me)
 - please dni if you're just looking to start or pull me into drama
 - -14 dni on both servers ty
 - don't be shy and PLEASE leave something on my guestbook :3 
