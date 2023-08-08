@@ -1,5 +1,5 @@
 - hi ponytown (if u dont feel like reading my rentry)
-- i'm daniel, he/him !! im usually on pg and rarely on 18+
+- i'm daniel, he/him !! i bounce between pg and 18+
 - err i sit with my friends a lot ^_^ feel free to c + h if im alone
 - i'm autistic + other unlisted disorders. (yes im prof. diagnosed stop asking me)
 - please dni if you're just looking to start or pull me into drama
