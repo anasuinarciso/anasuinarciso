@@ -1,7 +1,7 @@
 - hi ponytown (if u dont feel like reading my rentry)
 - i'm daniel, he/him !! im mostly on pg.
 - err i sit with my friends a lot ^_^ feel free to c + h if im alone
-- i'm autistic + other unlisted disorders. (yes im prof. diagnosed stop asking me)
+- i'm autistic + other on my rentry. (yes im prof. diagnosed stop asking me)
 - please dni if you're just looking to start or pull me into drama
 - dni if you're younger than me (i prefer interacting with ppl my age)
 - don't be shy and PLEASE leave something on my guestbook :3 
