@@ -1,9 +1,9 @@
 - hi ponytown (if u dont feel like reading my rentry)
-- i'm daniel, he/him !! i bounce between pg and 18+
+- i'm daniel, he/him !! im mostly on pg.
 - err i sit with my friends a lot ^_^ feel free to c + h if im alone
 - i'm autistic + other unlisted disorders. (yes im prof. diagnosed stop asking me)
 - please dni if you're just looking to start or pull me into drama
-- -14 dni on both servers ty
+- dni if you're younger than me (i prefer interacting with ppl my age)
 - don't be shy and PLEASE leave something on my guestbook :3 
 
 ![image](https://github.com/anasuinarciso/anasuinarciso/assets/139638467/9cd54341-67e0-478b-89b9-a287fc51e369)![image](https://github.com/anasuinarciso/anasuinarciso/assets/139638467/2c045f03-24bc-450a-9df5-92a9017e4fad)![image](https://github.com/anasuinarciso/anasuinarciso/assets/139638467/21cad70a-b9c8-438d-b3ce-094abbe049ef)![image](https://github.com/anasuinarciso/anasuinarciso/assets/139638467/6c408f43-722a-4525-904e-39756ac824f7)![image](https://github.com/anasuinarciso/anasuinarciso/assets/139638467/35d0c96c-42fa-40cf-a288-dada5392afa7)
